@@ -29,4 +29,4 @@
 
 Veri **27/01/2020** tarihinde alınmıştır
 
-Sponsored by [6harf.com](https://6harf.com "Turkey based creative design & development agency")
+Sponsored by [6harf.com](https://6harf.com "web tasarım")
