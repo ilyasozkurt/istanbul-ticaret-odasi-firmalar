@@ -29,4 +29,4 @@
 
 Veri **27/01/2020** tarihinde alınmıştır
 
-Sponsored by [6harf.com](https://6harf.com "web tasarım")
+Sponsored by [freestockphotos.site](https://freestockphotos.site "Free Stock Photos.site")
