@@ -29,4 +29,4 @@
 
 Veri **27/01/2020** tarihinde alınmıştır
 
-Sponsored by [freestockphotos.site](https://freestockphotos.site "Free Stock Photos.site")
+Sponsored by [hometrust.app](https://hometrust.app "Property Reviews Platform")
