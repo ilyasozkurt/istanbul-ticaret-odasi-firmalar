@@ -29,4 +29,4 @@
 
 Veri **27/01/2020** tarihinde alınmıştır
 
-Sponsored by [hometrust.app](https://hometrust.app "Property Reviews Platform")
+Sponsored by [trustlocale.com](https://trustlocale.com "Neighborhood Reviews, Insights")
