@@ -29,4 +29,4 @@
 
 Veri **27/01/2020** tarihinde alınmıştır
 
-Sponsored by [trustlocale.com](https://trustlocale.com "Neighborhood Reviews, Insights")
+Sponsored by [offday.app](https://trustlocale.com "Discover the best days off to maximize your holiday!")
